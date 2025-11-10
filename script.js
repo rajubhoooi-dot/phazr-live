@@ -106,6 +106,26 @@ function getImage(p) {
   return null;
 }
 
+fetch('/dashboard?limit=20')
+  .then(r => r.json())
+  .then(data => {
+    const posts = data.posts;
+    if (posts.length === 0) {
+      document.getElementById('posts').innerHTML = '<p>Log in to Tumblr to see your dashboard.</p>';
+      return;
+    }
+
+    const container = document.getElementById('posts');
+    container.innerHTML = posts.map(p => `
+      <div class="post">
+        <small>From: <strong>${p.blog_name}</strong></small>
+        <h3>${p.title}</h3>
+        <div>${p.summary}</div>
+        <small><a href="${p.url}" target="_blank">View on Tumblr</a></small>
+      </div>
+    `).join('');
+  });
+
 // Search
 search.oninput = () => {
   const term = search.value.trim().toLowerCase();
