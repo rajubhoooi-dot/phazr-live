@@ -11,7 +11,7 @@ const { marked } = require('marked');
 const app = express();
 app.use(cors());
 
-// SERVE ALL FILES IN ROOT (index.html, bloglist.html, detail.html, etc.)
+// SERVE ALL FILES IN ROOT
 app.use(express.static(__dirname));
 
 const PORT = process.env.PORT || 3000;
@@ -38,7 +38,7 @@ async function tumblrGet(url) {
   return res.json();
 }
 
-// API Routes
+// API: Get posts
 app.get('/blog/:blog/posts', async (req, res) => {
   const { blog } = req.params;
   const offset = parseInt(req.query.offset) || 0;
@@ -65,7 +65,7 @@ app.get('/blog/:blog/posts', async (req, res) => {
   }
 });
 
-// Fallback: serve correct file or index.html
+// FALLBACK: serve correct file or index.html
 app.get('*', (req, res) => {
   const filePath = path.join(__dirname, req.path);
   if (fs.existsSync(filePath) && fs.statSync(filePath).isFile()) {
@@ -76,5 +76,4 @@ app.get('*', (req, res) => {
 
 app.listen(PORT, '0.0.0.0', () => {
   console.log(`Server running on port ${PORT}`);
-  console.log(`Visit: https://phazr-live.onrender.com/bloglist.html`);
 });
