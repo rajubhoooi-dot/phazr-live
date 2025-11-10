@@ -11,7 +11,7 @@ const { marked } = require('marked');
 const app = express();
 app.use(cors());
 
-// SERVE ALL FILES IN ROOT
+// SERVE ALL FILES (bloglist.html, detail.html, etc.)
 app.use(express.static(__dirname));
 
 const PORT = process.env.PORT || 3000;
@@ -65,8 +65,8 @@ app.get('/blog/:blog/posts', async (req, res) => {
   }
 });
 
-// FALLBACK: serve correct file or index.html
-app.get('*', (req, res) => {
+// FALLBACK: Serve correct file or index.html
+app.use((req, res) => {
   const filePath = path.join(__dirname, req.path);
   if (fs.existsSync(filePath) && fs.statSync(filePath).isFile()) {
     return res.sendFile(filePath);
@@ -76,4 +76,5 @@ app.get('*', (req, res) => {
 
 app.listen(PORT, '0.0.0.0', () => {
   console.log(`Server running on port ${PORT}`);
+  console.log(`Visit: https://phazr-live.onrender.com/bloglist.html`);
 });
