@@ -64,6 +64,35 @@ app.get('/blog/:blog/posts', async (req, res) => {
     res.status(500).json({ posts: [] });
   }
 });
+// === DASHBOARD ROUTE ===
+app.get('/dashboard', async (req, res) => {
+  const offset = parseInt(req.query.offset) || 0;
+  const limit = parseInt(req.query.limit) || 20;
+
+  try {
+    const data = await tumblrGet(
+      `https://api.tumblr.com/v2/user/dashboard?offset=${offset}&limit=${limit}`
+    );
+
+    const raw = data.response?.posts || [];
+    const posts = raw.map(p => ({
+      id: p.id,
+      blog_name: p.blog_name,
+      title: p.title || p.summary?.replace(/<[^>]*>/g, '').slice(0, 100) + '...',
+      summary: marked.parse(p.summary || ''),
+      type: p.type,
+      url: p.post_url,
+      reblogged_from: p.reblogged_from_name || null,
+      timestamp: p.timestamp,
+      tags: p.tags || []
+    }));
+
+    res.json({ posts });
+  } catch (e) {
+    console.error('Dashboard error:', e);
+    res.status(500).json({ posts: [] });
+  }
+});
 
 // FALLBACK: Serve correct file or index.html
 app.use((req, res) => {
