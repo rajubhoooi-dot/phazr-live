@@ -4,26 +4,24 @@ const fetch = require('node-fetch');
 const OAuth = require('oauth-1.0a');
 const crypto = require('crypto');
 const cors = require('cors');
-const path = require('path');
-const fs = require('fs');
 const { marked } = require('marked');
 
 const app = express();
 app.use(cors());
-
-// SERVE ALL FILES (bloglist.html, detail.html, etc.)
-app.use(express.static(__dirname));
+app.use(express.static('.'));               // serve all static files
 
 const PORT = process.env.PORT || 3000;
 
-// OAuth setup
+// ---------- Tumblr OAuth ----------
 const oauth = OAuth({
   consumer: {
     key: process.env.TUMBLR_CONSUMER_KEY,
     secret: process.env.TUMBLR_CONSUMER_SECRET
   },
   signature_method: 'HMAC-SHA1',
-  hash_function: (base_string, key) => crypto.createHmac('sha1', key).update(base_string).digest('base64')
+  hash_function(base_string, key) {
+    return crypto.createHmac('sha1', key).update(base_string).digest('base64');
+  }
 });
 
 const token = {
@@ -38,7 +36,7 @@ async function tumblrGet(url) {
   return res.json();
 }
 
-// API: Get posts
+// ---------- Routes ----------
 app.get('/blog/:blog/posts', async (req, res) => {
   const { blog } = req.params;
   const offset = parseInt(req.query.offset) || 0;
@@ -64,46 +62,21 @@ app.get('/blog/:blog/posts', async (req, res) => {
     res.status(500).json({ posts: [] });
   }
 });
-// === DASHBOARD ROUTE ===
-app.get('/dashboard', async (req, res) => {
-  const offset = parseInt(req.query.offset) || 0;
-  const limit = parseInt(req.query.limit) || 20;
 
+app.get('/tag/:tag', async (req, res) => {
+  const { tag } = req.params;
   try {
-    const data = await tumblrGet(
-      `https://api.tumblr.com/v2/user/dashboard?offset=${offset}&limit=${limit}`
-    );
-
-    const raw = data.response?.posts || [];
-    const posts = raw.map(p => ({
-      id: p.id,
-      blog_name: p.blog_name,
-      title: p.title || p.summary?.replace(/<[^>]*>/g, '').slice(0, 100) + '...',
-      summary: marked.parse(p.summary || ''),
-      type: p.type,
-      url: p.post_url,
-      reblogged_from: p.reblogged_from_name || null,
-      timestamp: p.timestamp,
-      tags: p.tags || []
-    }));
-
-    res.json({ posts });
+    const data = await tumblrGet(`https://api.tumblr.com/v2/tagged?tag=${tag}`);
+    res.json({ posts: data.response || [] });
   } catch (e) {
-    console.error('Dashboard error:', e);
+    console.error(e);
     res.status(500).json({ posts: [] });
   }
 });
 
-// FALLBACK: Serve correct file or index.html
-app.use((req, res) => {
-  const filePath = path.join(__dirname, req.path);
-  if (fs.existsSync(filePath) && fs.statSync(filePath).isFile()) {
-    return res.sendFile(filePath);
-  }
-  res.sendFile(path.join(__dirname, 'index.html'));
-});
+// fallback – serve index.html for any unknown route
+app.get('*', (req, res) => res.sendFile(__dirname + '/index.html'));
 
 app.listen(PORT, '0.0.0.0', () => {
-  console.log(`Server running on port ${PORT}`);
-  console.log(`Visit: https://phazr-live.onrender.com/bloglist.html`);
+  console.log(`Server listening on port ${PORT}`);
 });
