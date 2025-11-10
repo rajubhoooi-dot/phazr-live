@@ -1,0 +1,51 @@
+<script>
+  async function loadStories() {
+    try {
+      const res = await fetch('/blogs/index.json');
+      if (!res.ok) throw new Error('index.json not found');
+      
+      // THIS WILL NOW WORK
+      const files = await res.json();
+      const mdFiles = files.filter(f => f.endsWith('.md'));
+
+      if (mdFiles.length === 0) {
+        document.getElementById('posts').innerHTML = '<p>No stories found.</p>';
+        return;
+      }
+
+      const html = await Promise.all(mdFiles.map(async f => {
+        const title = f.replace(/\.md$/, '').replace(/^\d+[_ -]*/, '');
+        const url = `detail.html?id=${f}`;
+        let img = 'https://picsum.photos/500/300?random=' + Math.random();
+        let excerpt = 'Tap to read...';
+
+        try {
+          const mdRes = await fetch(`/blogs/${f}`);
+          if (mdRes.ok) {
+            const md = await mdRes.text();
+            const body = md.split('---').pop().trim();
+            excerpt = body.split('\n\n')[0].substring(0, 80) + '...';
+            const m = body.match(/!\[.*?\]\((.*?)\)/);
+            if (m) img = m[1];
+          }
+        } catch (e) {}
+
+        return `<a href="${url}">
+          <div class="post-card">
+            <img src="${img}" class="post-img" loading="lazy">
+            <div class="post-body">
+              <div class="post-title">${title}</div>
+              <div class="post-excerpt">${excerpt}</div>
+            </div>
+          </div>
+        </a>`;
+      }));
+
+      document.getElementById('posts').innerHTML = html.join('');
+    } catch (e) {
+      document.getElementById('posts').innerHTML = `<p style="color:red">JSON Error: ${e.message}</p>`;
+    }
+  }
+
+  loadStories();
+</script>

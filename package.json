@@ -1,0 +1,19 @@
+{
+  "name": "tumblr-dashboard",
+  "version": "1.0.0",
+  "main": "proxy.cjs",
+  "scripts": {
+    "start": "node proxy.cjs"
+  },
+  "license": "ISC",
+  "dependencies": {
+    "cors": "^2.8.5",
+    "dotenv": "^17.2.3",
+    "express": "^5.1.0",
+    "node-fetch": "^2.7.0",
+    "oauth-1.0a": "^2.2.6"
+  },
+  "description": "",
+  "keywords": [],
+  "author": ""
+}

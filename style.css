@@ -1,0 +1,156 @@
+const PROXY = 'http://localhost:3000';
+let offset = 0;
+const limit = 10;
+let loading = false;
+let hasMore = true;
+let allPosts = [];
+let isSearching = false;
+
+const feed = document.getElementById('feed');
+const loadingEl = document.getElementById('loading');
+const errorEl = document.getElementById('error');
+const search = document.getElementById('search');
+const liveCounts = document.getElementById('live-counts');
+const footerSearch = document.getElementById('footer-search');
+
+// Infinite scroll
+new IntersectionObserver(entries => {
+  if (entries[0].isIntersecting && hasMore && !loading && !isSearching) {
+    loadPosts();
+  }
+}, { threshold: 1.0, rootMargin: '100px' }).observe(document.getElementById('sentinel'));
+
+async function loadPosts() {
+  if (loading || !hasMore || isSearching) return;
+  loading = true;
+  loadingEl.style.display = 'block';
+
+  try {
+    const res = await fetch(`${PROXY}/dashboard?limit=${limit}&offset=${offset}&npf=true&notes_info=true`); // Add notes_info for likes
+    if (!res.ok) throw new Error(`HTTP ${res.status}`);
+
+    const data = await res.json();
+    const posts = data.response?.posts || [];
+
+    if (posts.length === 0) {
+      hasMore = false;
+      loadingEl.textContent = "No more posts.";
+      return;
+    }
+
+    allPosts = allPosts.concat(posts);
+    render(posts);
+    offset += posts.length;
+    updateLiveCounts(); // Update counts
+
+  } catch (err) {
+    console.error(err);
+    errorEl.textContent = err.name === 'TypeError'
+      ? "Proxy not running! Run: node proxy.js"
+      : "Check .env keys or internet.";
+    errorEl.style.display = 'block';
+  } finally {
+    loading = false;
+    loadingEl.style.display = 'none';
+  }
+}
+
+function render(posts) {
+  const frag = document.createDocumentFragment();
+  posts.forEach(p => {
+    const img = getImage(p);
+    if (!img) return;
+
+    const post = document.createElement('article');
+    post.className = 'post';
+
+    // Real like count from API (note_count = likes + reblogs)
+    const likeCount = p.note_count || 0;
+
+    post.innerHTML = `
+      <img src="${img}" loading="lazy" />
+      <div class="post-actions">
+        <i class="far fa-heart"></i>
+        <span class="like-count">${likeCount}</span>
+      </div>
+    `;
+
+    const heart = post.querySelector('.fa-heart');
+    heart.onclick = e => {
+      e.target.classList.toggle('fas');
+      e.target.classList.toggle('far');
+      e.target.classList.toggle('liked');
+      // Update count (simulate increment)
+      const countEl = post.querySelector('.like-count');
+      countEl.textContent = parseInt(countEl.textContent) + 1;
+    };
+
+    frag.appendChild(post);
+  });
+  feed.appendChild(frag);
+}
+
+function getImage(p) {
+  if (Array.isArray(p.content)) {
+    for (const b of p.content) {
+      if (b.type === 'image' && b.media?.[0]?.url) return b.media[0].url;
+    }
+  }
+  if (p.type === 'photo' && p.photos?.[0]?.original_size?.url) {
+    return p.photos[0].original_size.url;
+  }
+  if (p.type === 'video' && p.thumbnail_url) return p.thumbnail_url;
+  if (Array.isArray(p.trail)) {
+    for (const t of p.trail) {
+      if (t.content) {
+        for (const b of t.content) {
+          if (b.type === 'image' && b.media?.[0]?.url) return b.media[0].url;
+        }
+      }
+    }
+  }
+  return null;
+}
+
+// PHAZR Override: All blogs = "PHAZR" (already hidden, but for future use)
+function getBlogName(p) {
+  return 'PHAZR';
+}
+
+// Live Counts Update
+function updateLiveCounts() {
+  liveCounts.textContent = `Posts: ${allPosts.length}`;
+}
+
+// Search (Footer + Top)
+footerSearch.oninput = search.oninput = () => {
+  const term = (footerSearch.value || search.value).trim().toLowerCase();
+  isSearching = term.length > 0;
+
+  const filtered = allPosts.filter(p => {
+    return getBlogName(p).toLowerCase().includes(term); // PHAZR filter
+  });
+
+  feed.innerHTML = '';
+  render(filtered);
+  updateLiveCounts();
+};
+
+// Footer Functions
+function toggleMenu() {
+  alert('Menu toggled! (Add your menu logic here)'); // Placeholder
+}
+
+function likeAll() {
+  // Instagram-style: Like all visible posts
+  document.querySelectorAll('.fa-heart').forEach(heart => {
+    if (!heart.classList.contains('liked')) {
+      heart.click();
+    }
+  });
+  alert('Liked all posts! ❤️');
+}
+
+// Start
+loadPosts();
+updateLiveCounts();
