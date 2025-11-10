@@ -1,0 +1,64 @@
+﻿TITLE: Chudai Ka Khel: Maa, Dost Aur Ek Raaz-17
+URL:..
+Chudai Ka Khel: Maa, Dost Aur Ek Raaz-16
+Maa-Beta Sex Kahani ab aage-
+Raat ki ghatna ke baad, agle kuch din ghar mein sab normal dikhane ki koshish mein beete. Mummy aur main dono hi savdhani barat rahe the, par hamare beech ki khamosh understanding hum dono ko aur kareeb le aayi thi. Papa aur Dadi abhi bhi thodi nazar rakhe hue the, par hum dono ne apne chehron par aisa mask pehan liya tha jaise kuch hua hi na ho. Par andar hi andar, mummy ki hawas aur mere liye unki chaahat mein koi kami nahi aayi thi.
+Kuch din aise hi guzar gaye. Mummy ne Anirudh bhai se mulaqat band kar di thi, aur ghar mein bhi wo zyada baahar jaane ka bahana nahi bana rahi thi.
+Mahaul thoda shaant tha, par mere aur mummy ke beech ki khamosh aag ab bhi jal rahi thi. Hum dono raat ko chhup-chhup kar milte the, aur har mulaqat mein hamari chaahat aur badhti jaa rahi thi. Par dono darr ke mare itna khul kar maze nahi lete the.
+Ek baar papa apne office ke kaam se baahar gaye the kuch din ke liye aur hame bahut acha mauka mila tha chudai karne ka. Sab ke so jane ke baad kareeb raat ko 12 baje mummy mere kamre mein aayi.
+Mummy (Dheemi, uttejit awaaz mein): Aarav, Anirudh ji ko phone kar na. Bahut din ho gaye unse baat bhi nahi hui.
+Maine sar hilaya, mera dil tezi se dhadakne laga. Mujhe pata tha ki ab kuch garam hone wala hai. Mummy ne call kiya aur speaker par daal diya.
+Mummy (Phone par, halki meethi awaaz mein): Hello, Anirudh jiâ€¦ Arre aapâ€¦ kaise hai?
+Unki awaaz mein ek nakli narmayi thi, jo sirf main samajh sakta tha.
+Anirudh bhai (Phone par, thodi bechaini se): Yamini ji, Pichle kuch dino se aapne contact nahi kiya, sab theek hai? Aur Aarav kaisa hai? Wo bhi aaj kal mil nahi raha hai.
+Mummy ke hontho par ek halki, naughty smile phail gayi.
+Mummy (Anirudh bhai se, thodi udaasi dikhate hue): Ji Anirudh ji, main to theek hu, par thoda busy ho gayi thi. Ghar mein Maa ji ki tabiyat thodi theek nahi chal rahi hai, isliye zyada baahar nahi jaa pa rahi. Aur Aarav bhiâ€¦ haa, wo bhi theek hai. Aaj kal ghar mein hi hai.
+Mummy ki awaaz mein ek tarah ki chinta dikh rahi thi, jisse Anirudh bhai ko ye lage ki wo sach mein pareshan thi. Par unki aankhon mein ek ajeeb si chamak thi, jo mujhe tease kar rahi thi.
+Anirudh bhai: Oh, I see. Maine socha kuchâ€¦ khaas baat ho gayi hai. Mujhe to aapki bahut yaad aa rahi thi, Yamini ji. Wo jo sukoon aapke sath milta hai, wo kahin nahi milta.
+Anirudh bhai ki awaaz mein saaf-saaf chaahat aur bechaini thi. Mummy ne ek pal ke liye mere taraf dekha, aur unke chehre par ab ek naughty smile thi. Unka hath dheere se apni saree ke pallu par gaya aur use halka sa sarkaya, jisse unki cleavage ki halki jhalak dikhi, jaise wo mujhe tease kar rahi ho.
+Mummy (Ek gehri saans lete hue, par awaaz mein chhupi hui naughty tone thi): Anirudh ji, sukoon to mujhe bhi bahut pasand hai. Par kabhi-kabhi to khud ko control karna padta hai na. Aur waise bhi, ghar mein itni nazar rakhi jaati hai. Aap to samajhte hai.
+Mummy ne ye baat Anirudh bhai se kahi, par unki nazar seedhi mere taraf thi, jaise wo mujhe bata rahi ho ki Anirudh bhai unke liye ab kitna unimportant hai, aur wo sab mere liye kar rahi hai.
+Anirudh bhai (Thodi nirasha ke sath): Main samajhta hu, Yamini ji. Par main aapke bina reh nahi pa raha. Kya hum kabhi mil nahi sakte? Bahut din ho gaye hai.
+Mummy ne phone ko thoda aur kareeb kiya, aur unki aankhon mein ab ek gehra junoon tha. Unhone halke se apne hontho ko kaata, jaise apni hawas ko rok rahi ho.
+Mummy (Dheemi, nasheeli awaaz mein): Milenge Anirudh ji, zaroor milenge. Bas thoda sabra kijiye. Jab mauka milega, main khud aapko bataungi. Aur tab main aapko wo sukoon doongi jo aapne kabhi socha bhi nahi hoga. Thoda waqt dijiye bas.
+Unhone Anirudh bhai ko ek aisi ummeed di, jo unhein bandhe rakhegi. Anirudh bhai ne khushi se kuch aur baatein ki, aur fir phone rakh diya.
+Jaise hi phone kata, mummy ne ek gehri, kaamuk saans li. Unki aankhon mein ab wahi hawas aur nasha saaf dikh raha tha jo Anirudh bhai ke flat par tha. Unhone bina kisi awaaz ke mere taraf dekha.
+Maine apni aankhein band kar li. Mummy mere kareeb aayi, unki garam saansein mere chehre par pad rahi thi. Unhone bina kuch bole, dheere se mere hontho par apne honth rakh diye.
+Ye kiss pehle se zyada passionate aur desperate thi. Unke honth garam the aur unki zubaan mere munh mein ghus gayi, har hadd paar karti hui. Hath unke mere chehre par the, fir meri gardan par aur fir meri T-shirt ke andar. Unke jism ki garmi aur unki chudai ki bhookh saaf mehsoos ho rahi thi. Mummy ne meri T-shirt utaar di aur mere nange seene par apne naram hath fere.
+Mummy (Kiss ke beech mein, saans lete hue): Us Anirudh ji ki awaaz se meri chut aur garam ho gayi, Aarav. Par uski pyaas to tu hi bujha sakta hai. Wo to bas bahana hai.
+Unhone fir se mere hontho ko choomna shuru kar diya. Mera lund boxer mein tann chuka tha aur mummy ki nangi jaangh se takra raha tha.
+Mummy ne mere honth chhodhe, par unki aankhein ab bhi junoon se chamak rahi thi. Unka hath mere boxer ke upar se mere lund ko masal raha tha. Mera lund poori tarah se tann chuka tha, aur mummy ka touch use aur pagal bana raha tha. Unhone ek naughty hansi di.
+Mummy (Dheemi, nasheeli awaaz mein): Ab jab tere Papa bhi nahi hai aur Anirudh ji ko bhi tasalli ho gayi hai to kya irada hai, mere bete? Aaj to mummy ko poora maza chahiye. Ab koi darr nahi.
+Unki aankhon mein ek saaf invitation tha, aur unka hath ab mere boxer ko neeche karne laga. Mere andar ki saari bechaini ab ek junoon mein badal chuki thi. Maine unhein apne kareeb kheencha, unke naram jism ko apne seene se chipka liya.
+Main (Unke kaan mein fusfusate hue): Aaj to aapko meri har saans mein maza milega, Mummy. Aur main aapki pyaas aise bujhaunga ki aap Anirudh ji ko to kya, sab kuch bhool jaayengi.
+Mummy ne ek madhosh aah bhari aur mere hontho ko fir se apne hontho mein bhar liya. Kiss karte-karte, mere hath mummy ki saree par chalne lage. Unhone bhi apne hath meri T-shirt ke andar daal diye. Mummy ne apni saree ka pallu sarkaya, unki gardan aur kandhon ki naram skin saamne aayi.
+Unhone dheere se apni saree ko utaar kar bistar par gira diya. Ab wo sirf blouse aur petticoat mein thi. Unke bhare hue boobs blouse mein kass kar bandhe the, saaf dikh rahe the.
+Maine unke blouse ke ek-ek button ko dheere se kholna shuru kiya. Har button khulte hi unki cleavage aur bhi gehrayi se dikhne lagi. Mummy ki saansein tez ho rahi thi. Jab saare buttons khul gaye, to mummy ne blouse ko apne kandhon se utaar diya, aur wo bistar par gir gaya. Ab wo sirf bra aur petticoat mein thi. Unke bade, gora rang ke boobs bra mein phoole hue the, aur unke nipples bra ke fabric se ubhar rahe the.
+Mummy ne mere boxer ko pakda aur ek hi jhatke mein neeche khiska diya. Mera khada lund ab poori tarah azaad ho kar unke face ke samne aa gaya tha, aur uski garmi unhein saaf mehsoos ho rahi thi.
+Mummy ne mere khade lund ko apne garam hatho mein liya. Unki ungliyon ka sparsh hi mere poore jism mein ek lehar dauda gaya. Unhone ek madhosh muskaan di aur dheere se mere lund ke supaare ko apne naram hontho mein bhar liya. Unki garam jeebh ne jaise hi mere lund ko chhua, ek ajeeb sa current laga.
+Mummy ne apne muh mein mere lund ko upar-neeche karna shuru kar diya, har baar aur gehrayi se chooste hue. Unki saansein tez ho rahi thi aur unki halki-halki siskiyan mere kaano mein jaadu kar rahi thi. Unke boobs bra mein uchal rahe the har baar jab wo neeche jhukti thi.
+Main apni aankhein band karke mummy ke is kaamuk hunar ka aanand le raha tha. Unhone mere lund ko itni shiddat se choosa ki main jhadne ke kareeb aa gaya. Mera badan kaamp raha tha.
+Main (Dheemi, garma-garam awaaz mein): Mummyâ€¦ basâ€¦ aur nahiâ€¦ main jhad jaungaâ€¦
+Mummy ne mere lund ko apne muh se baahar nikala, unke honth chamak rahe the. Unhone ek naughty smile di aur meri taraf dekha, unki aankhon mein hawas thi.
+Mummy (Saans lete hue, halke se hanste hue): Itni jaldi haar maan gaya, mere bete? Abhi to khel shuru hua hai.
+Mummy ne mere lund ko chhodh kar apni bra ko dheere se utara. Unke nange, bhare hue boobs ab poori tarah azaad the, aur main unhein dekh kar aur bhi uttejit ho gaya. Unhone apni panty ki elastic ko pakda aur usko dheere-dheere neeche khiska diya, jisse unki gulaabi chut aur nangi jaanghein saamne aa gayi. Unki panty bhi bistar par gir gayi.
+Ab mummy poori tarah nangi thi, aur unhone mere lund ko chhodh kar neeche sarakna shuru kiya. Main samajh gaya tha ki unka agla irada kya tha. Unhone apni nangi jaanghon ko failaya aur mere saamne apni gulaabi chut ko pesh kiya. Unki chut ke honth phoole hue the aur unmein se halki-halki madak khushboo aa rahi thi.
+Main bina kisi deri ke mummy ki chut ko chaatne laga. Meri jeebh unki geeli, garam chut par aise chal rahi thi jaise pyasa patthar par. Mummy ne ek tez aah bhari aur unki ungliyaan mere baalon mein phans gayi. Maine unki chut ke har hisse ko chaata, daane ko choosta raha, aur unki rasbhari gufa mein apni jeebh ko gehrayi tak le gaya.
+Mummy (Madhoshi mein chillate hue): Aaahâ€¦ Aaravâ€¦ aur tezâ€¦ meri jaanâ€¦ meri chut ko kha jaa.. haaâ€¦ aise hiâ€¦ ummmâ€¦
+Unhone mere sar ko aur kass ke apni chut par dabaya. Main unki chut ka har boond rass pee raha tha, aur unki madhosh aahein mujhe aur bhi uttejit kar rahi thi. Kuch der mein mummy ka badan jhatke khaane laga, aur unki chut ne garam rass ki bauchaar kar di. Unhone jhadte hue mujhe kass kar pakad liya.
+Mummy ke jhadne ke baad bhi, unki hawas shant nahi hui thi. Unhone mere sar ko apni chut se hataya. Unka chehra pasine se bheega hua tha, par unki aankhon mein ek naya junoon tha.
+Mummy (Saans lete hue): Ab meri baari hai, Aarav. Aaj main tujhse har position mein chudwaungi.
+Unhone mujhe dhakel kar bistar par litaya. Khud mere upar chadh gayi. Ye cowgirl position thi, par ismein mummy ka control saaf dikh raha tha. Unhone mere khade lund ko apni geeli chut ke muhane par set kiya aur dheere se neeche baithi. Mera lund unki garam chut mein sarakta hua andar chala gaya.
+Mummy (Ek gehri aah bharte hue): Ahhâ€¦ Aaravâ€¦ kitna garam hai tera lundâ€¦
+Unhone apni kamar ko dheere-dheere gol ghumana shuru kiya, aur fir tez jhatke maarne lagi. Unke bade boobs tezi se upar-neeche ho rahe the, aur main unki har harkat ka aanand le raha tha.
+Kuch der baad mummy mere upar se hati aur doggy style mein ho gayi. Unki badi gaand mere saamne thi, aur unki kamar thodi jhuki hui thi. Maine unke peeche se unki kamar ko pakda aur unki chut mein apna lund daal diya. Is position mein har dhakka aur bhi gehra lag raha tha, aur mummy ki siskiyan aur bhi unchi ho gayi thi.
+Mummy (Chillate hue): Aur tez, Aaravâ€¦ meri gaand ko aur upar uthaâ€¦ haaâ€¦ ahhhâ€¦
+Maine unhein aur kass ke pakda aur tez dhakke maarne laga. Hamare jism ek-doosre se takra rahe the, aur kamre mein chudai ki awaaze goonj rahi thi. Aise hi karte karte, mummy ne do-teen aur nayi positions try ki. Kabhi spooning position mein, jahan wo mere bagal mein leti aur maine peeche se unki chut mein lund daala. Kabhi chair position mein, jahan wo meri god mein baithi aur mere lund par uchal rahi thi. Har position mein mummy ka junoon aur uttejana badhti jaa rahi thi.
+Ant mein, hum dono thak kar bistar par gir gaye. Hamari saansein tez chal rahi thi, aur badan pasine se bheega hua tha. Mummy mere bagal mein leti hui thi, unka chehra santushti se chamak raha tha.
+Mummy (Dheemi, santusht awaaz mein): Sach mein, Aaravâ€¦ tere jaisa mard koi nahi. Toone to meri chut ko sach mein shant kar diya aaj. Ab Anirudh ji kya, koi aur yaad nahi aayega.
+Mummy ke in shabdon ne mere zehan mein ek nayi soch daal di. Ye sunte hi mere dimaag mein ek jhatka sa laga. Anirudh ji to the hi, par kya iska matlab ye tha ki Anirudh ji ke alawa bhi koi aur tha mummy ki zindagi mein? Kya unhone papa ke alawa bhi kayi mardon se apne jism ki pyaas bujhayi thi? Ye sawaal mere mann mein ek-dum se ubhar aaye. Ek halki si chinta aur curiosity mere dimaag mein tezi se ghoomne lagi. Meri aankhon mein ek pal ke liye ek ajeeb sa confusion dikha, main mummy ke chehre ko gaur se dekhne laga.
+Mummy meri aankhon mein jhank rahi thi. Unhone mere chehre par hath rakha aur ek halki muskurahat di, jaise wo mere sawaalon ko pehchan gayi ho. Par unhone kuch kaha nahi, bas mujhe aur kareeb kheech liya. Unka past mere liye ek rahasya ban gaya tha, jise main samajhna chaahta tha, par is pal, unki nangi, santusht aankhon mein sirf mujhi ke liye hawas thi. Maine bhi un sawalon ko ek taraf rakh kar us pal ki intimacy mein doob jaane ka fainsla kiya.
+Unhone mera hath pakda, aur use apne seene par rakha. Main unhein apne kareeb kheencha aur unke maathe par ek halka kiss kiya. Uske baad mummy mere sath nangi so gayi aur raat ko 4 baje wo apne kamre mein chali gayi.
+Agla bhaag padhe:-
+Chudai Ka Khel: Maa, Dost Aur Ek Raaz-18\r\n
+

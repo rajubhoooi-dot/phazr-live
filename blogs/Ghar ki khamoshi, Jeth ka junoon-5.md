@@ -1,0 +1,49 @@
+﻿TITLE: Ghar ki khamoshi, Jeth ka junoon-5
+URL:..
+Ghar ki khamoshi, Jeth ka junoon-4
+Meri chudai ki kahani ab aage-
+Unka har sparsh mere andar ek aag si laga raha tha, aur main bas us pal mein kho jaana chaahti thi, mere hontho se dheemi-dheemi siskariyan nikal rahi thi.
+Unhone meri petticoat ka naada khol diya aur wo sarak kar mere pairon mein aa gaya. Unhone mujhe bed par lita diya aur meri panty ko bhi kheench kar ghutnon tak kar diya. Maine apni saaf-suthri chut chhupane ki koshish ki, par unhone mere hatho ko hata diya. Wo neeche baith gaye aur meri panty kheench kar fenk di. Fir meri taangein phaila kar mere chut par muh laane lage.
+Main unka sar door kar rahi thi. Par unhone mere dono hath pakad liye aur meri taangon ke beech aa kar meri chut par kiss karne lage aur chaatne lage. Unki garam jeebh meri chut ko jala rahi thi, aur main tadap uthi. Meri saansein tez ho gayi, aur mere jism mein ek tez current sa daud gaya.
+Mera jism kaamp raha tha. Maine sisakte hue, awaaz mein ladkhadahate hue kaha, â€œAap ye kya kar rahe ho, jeth ji?â€
+Jeth ji meri chut chaat-te hue, masti mein bole, â€œMain tumhe santusht kar raha hu, Sapna. Tumhari ye pyaas main hi bujha sakta hu.â€
+Unki zubaan mein jaise jaadu tha, aur maine khud apni taangein phaila di aur apni chut mere jeth ji se chatwane lagi. Meri saansein ukhad rahi thi aur main unke hawaale ho chuki thi, har ehsaas mein kho chuki thi.
+Main itni bekaabu ho gayi ki maine unka sar pakad kar apni chut par dabane lagi. Unke baalon ko apni ungliyon mein faasa liya. Unhone mujhe jhadne par majboor kar diya aur main tez siskari ke sath jhad gayi. Meri poori body mein ek tez current sa dauda aur main bilkul dheeli pad gayi. Wo meri chut ka rass chaatne lage, har boond ka maza le rahe the, jaise koi raseela fal kha rahe ho.
+Maine haanfte hue, kamzor awaaz mein kaha, â€œUffâ€¦ jeth jiâ€¦ yeâ€¦ ye kya jaadu hai aapki zubaan meinâ€¦ main to khud ko rok hi nahi paayi.â€
+Jeth ji meri chut ko sehlata hua, meri aankhon mein dekhta hua, shararati muskaan ke sath jawab diya, â€œJaadu to tumhari pyaas mein hai, Sapna. Jo itni gehri hai ki usko bujhaate-bujhaate mera bhi haal bura ho gaya.â€
+Maine bhi unko koi resist nahi kiya, kyunki unka har sparsh mujhe bechain kar raha tha aur main us pal ko jeena chaahti thi. Unhone meri chut ko chaatna jaari rakha, aur fir unhone mere taraf dekhte hue kaha, â€œSapna, tumhari ye chut toâ€¦ ye to meri pyaas hai. Aaj se ye sirf meri hai, meri jaan.â€
+Uske baad jeth ji dheere se khade hue aur mere saamne apni pant kholne lage. Meri nazar bas unke hatho ki har harkat par thiâ€¦ main unka lund baahar aata dekhna chaahti thi. Jaise hi unhone pant ke sath underwear bhi ek jhatke mein neeche kar diya, meri saans ek pal ke liye atak gayi.
+Meri aankhein badi ho gayiâ€¦ saamne unka lund tha, mota, lamba, mere husband se bhi kahin zyada bada. Main use dekh kar hairan reh gayiâ€¦ aisa lund to maine sirf porn mein dekha tha.
+Unhone mera hath pakad kar mujhe bitha diya. Ab unka lund mere muh ke bilkul saamne tha. Mere dil ki dhadkan tez ho gayi. Main sharma rahi thi, par chori-chori us par nazar daal rahi thiâ€¦ uski har rag jaise mujhe apni taraf kheench rahi thi.
+Jeth ji ne mera thoda sa chin utha kar meri aankhon mein dekha. Main samajh gayiâ€¦ wo kya chaahte the. Unki aankhon mein ek bhookh thi, khudgarz, par utni hi gehri, aur main bhi us bhookh ka hissa ban chuki thi.
+Maine apna hath aage badhayaâ€¦ jaise hi unke lund ko chhua, mere jism mein ek tez current sa daud gaya. Wo bahut sakht aur garam thaâ€¦ jaise kisi garam lohe ka rod.
+Maine us par ek halka sa kiss rakhaâ€¦ fir unki aankhon mein dekha. Unki nazar mein wahin hawas thiâ€¦ ek bhookhe sher ki tarah chamak, jo mujhe andar tak hila rahi thi.
+Maine apni aankhein band kiâ€¦ aur bina kuch soche unka lund apne muh mein le liya. Jaise main kisi sapne mein kho gayi huâ€¦ beparwah ho kar bas choos rahi thi. Unka lund garam, sakhtâ€¦ bilkul mere muh mein fit ho raha tha. Main apni jeebh se uska har inch mehsoos kar rahi thiâ€¦ har ek texture ka swaad le rahi thi.
+Jeth ji ne pyaar se apna hath mere sar par rakha, ungliyon se baalon ko halki si sehlaah di. Fir dheere-dheere mera sar aage-peeche karne lage. Unka lund meri hontho ke beech se andar-baahar hone laga. Kabhi poora gale tak ghus jata, to kabhi sirf unka supada mere hontho ke beech thirakta.
+Har dhakke par meri saans tez ho jaati, siskariyan nikal jaati. Gale mein unki garmi mehsoos hoti. Main poori tarah unke lund ke maza mein doob gayi thi, jaise har stroke ke sath ek nasha chadh raha ho.
+Jeth ji ne Aankhein band karte hue, sisakte hue kaha, â€œAah Sapnaâ€¦ kya choosti ho tumâ€¦ maza aa gaya. Tumne to meri jaan nikaal di.â€
+Unki tareef sun kar mujhe aur himmat mili. Main aur tezi se unka lund choosne lagi, jaise koi pyaasa paani pee raha ho. Meri jeebh unke lund ke har hisse ko chaat rahi thi, aur main uski naso ko bhi mehsoos kar rahi thi, har choosne mein aur gehra utaar rahi thi.
+Jeth ji ne mera sar pakda aur apne lund ko mere gale mein aur gehra utaar diya aur sisakte hue tezi se bole, â€œSapnaâ€¦ aaahâ€¦ mera nikalne wala haiâ€¦ sab pee jao meri jaanâ€¦ sab pee jaoâ€¦ ye mera amrit hai.â€
+Maine bhi bina soche samjhe unka poora rass muh mein le liya aur use pee gayi. Wo mere muh mein hi jhad gaye. Uske baad wo dheere se mere sar se hath-hata kar peeche ho gaye. Main haanfte hue unki taraf dekha. Mere muh mein abhi bhi unke lund ka swaad tha, aur ek ajeeb sa nasha chadha hua tha.
+Mere muh mein abhi bhi unke rass ka swaad tha, aur main halki si muskaan ke sath haanfte hue unki taraf dekh rahi thi. Jeth ji apni saansein sambhaal rahe the, unke chehre par ek gehri santushti aur aankhon mein shararat ki chamak thi.
+Wo muskurate hue bole, â€œTo Sapnaâ€¦ kaisa laga mera taste? Kya khayaal hai ab? Aur pilau, ya itna hi kaafi hai?â€
+Main sharmate hue, par aankhon se unka mazak udate hue boli, â€œAap to bahutâ€¦ bahut shaitaan ho gaye ho, jeth ji.â€
+Wo mere bilkul paas aa gaye, ungliyon se mere gaalon ko sehlate hue dheemi awaaz mein bole, â€œShaitani to ab shuru hui hai, meri jaanâ€¦ Aur ab jab tumne mera swaad chakh liya hai, to kya ye sher aise hi so jayega? Ya tumhara iraada ise fir se jagane ka hai?â€
+Unki baaton se mere hontho par hansi aa gayi, par dil mein ek nayi aag bhadak uthi. Unka lund abhi thoda naram tha, par ab bhi itna bada ki meri nazar usi par atak gayi.
+Main naughty smile ke sath unke lund ki taraf ishara karte hue boli, â€œAapko lagta hai ki main apne is sher ko aise hi sone doongi? Abhi to isse bahut kaam karwana hai.â€
+Jeth ji ki aankhon mein josh ka bijli sa chamak utri. â€œTo kya karogi meri jaan? Kaise jagaogi isse?â€
+Maine unka hath pakda, unhein bed par apne paas bithaya. Dheere se unka lund apni ungliyon mein lekar jaise koi anmol cheez ho, pyar se sehlaya. â€œIsse to abhi bahut kaam lena hai, jeth jiâ€¦ Aapki aaj ki har boond, sirf main hi piyungi.â€
+Maine unka lund apne hatho mein le liya, dheere-dheere uski garmi mehsoos karte hue sehlaane lagi. Uska naram aur bhari ehsaas mere hatho mein jaise aag jala raha tha. Main apna muh uske kareeb le gayi aur supade par halki si kiss di.
+Fir apni jeebh se upar se neeche tak uski lambayi ko chaatna shuru kiya. Jeth ji ki palkein band ho gayi, ek gehri saans unke seene se nikli, aur unke hontho se halki si siski.
+Wo hoth se muskurate hue bole, â€œAah Sapnaâ€¦ bas aise hiâ€¦ tumhaare hatho ka jaadu alag hi haiâ€¦ tum to meri chaheti ban gayi ho.â€
+Maine unke lund ko aur pyaar se choomna, chaatna shuru kiya, kabhi tip par apni jeebh ghumate hue, kabhi use apne muh mein lekar aage-peeche karti. Dheere-dheere uski narmiyat sakhti mein badal gayi, aur kuch hi palon mein wo bilkul tan chuka tha, mota, lamba, ek fauladi rod ki tarahâ€¦ jo ab meri garam chut mein utarne ko bechain tha.
+Jeth ji ka mota lund poori tarah tan chuka tha. Unhone meri taangein dheere se phailayi aur meri chut par thoda sa thook gira kar ungli se faila diya, jisse wo aur zyada chamak uthi. Meri chut abhi bhi unke oral pleasure se geeli thi, aur ab unka lund usmein ghusne ko bechain tha. Uski garmi main apne andar tak mehsoos kar rahi thi.
+Jeth ji ne ek naughty smile di, â€œAb main chhote ki kami poori kar raha hu, Sapnaâ€¦ aaj tumhe asal maza chakhne ko milega. Jo tumne kabhi socha bhi nahi hoga.â€
+Unki baat sun kar meri nazar apne aap unke lund par chali gayi. Mere dil mein ek ajeeb sa darr aur excitement dono sath-sath chal rahe the. Main unki aankhon mein dekhte hue halki si saans le kar boli, â€œAapka to bahut bada haiâ€¦ unka to aapke saamne kuch bhi nahi. Kya main ise poora andar le paungi?â€
+Meri baat sun kar jeth ji ke hontho par ek aur bhi naughty muskaan aa gayi. Wo meri chut ko ghoorte hue bole, â€œLund chaahe jitna bhi bada hoâ€¦ aurat ki chut usse nigal hi leti hai. Aur aaj tumhe wahi milega jo tum hamesha se chaahti thi. Dekhnaâ€¦ ye poora andar jayegaâ€¦ aur tumhe Jannat ka maza dikhayega.â€
+Unhone meri geeli chut par apna mota lund dheere-dheere ragadna shuru kiya. Har ragad ke sath meri saanson ki raftaar tez hoti jaa rahi thi, aur mere andar ek mithi tadap uth rahi thi. Lagta tha jaise wo jaan bujh kar mujhe tadpa rahe ho, mere jism ko apne lund ki pyaas se behaal karte hue.
+Mere hontho se bekarari nikal hi gayi, main unki gardan pakad kar boli, â€œKyun itna tadpa rahe ho? Ab chodo mujheâ€¦ mujhse aur intezaar nahi ho raha.â€
+Wo sirf muskuraye. Ek gehri saans lekar, unhone apna lund dheere se meri chut ke darwaze par rakhaâ€¦ aur halka sa dhakka diya. Jaise hi unka mota supada andar ghusa, ek tez dard ne meri saari saansen kheench li. â€œAahhhâ€¦â€ meri cheekh nikal gayi, meri aankhon se aansoo tapak pade.
+Jeth ji ne mujhe apni baahon mein sambhala, mujhe kareeb kheench kar dheere-dheere apna poora lund andar utaar diya.
+Iske aage kya hua, wo aapko agle part mein pata chalega.\r\n
+

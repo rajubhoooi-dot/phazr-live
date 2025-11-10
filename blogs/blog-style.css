@@ -1,0 +1,74 @@
+/* === BLOG DETAIL PAGE – CLEAN & READABLE === */
+body {
+  font-family: 'Segoe UI', Tahoma, Geneva, Verdana, sans-serif !important;
+  font-size: 1.15rem !important;
+  line-height: 1.7 !important;
+  color: #222 !important;
+  background: #fff !important;
+  padding: 2rem 1.5rem !important;
+  max-width: 800px;
+  margin: 0 auto;
+}
+
+h1, h2, h3, h4, h5, h6 {
+  color: #d32f2f !important;
+  margin-top: 1.8rem !important;
+  margin-bottom: 0.8rem !important;
+  font-weight: 600 !important;
+}
+
+h1 { font-size: 2rem !important; }
+h2 { font-size: 1.6rem !important; }
+h3 { font-size: 1.4rem !important; }
+
+p {
+  margin-bottom: 1.2rem !important;
+}
+
+a {
+  color: #d32f2f !important;
+  text-decoration: underline !important;
+}
+
+a:hover {
+  color: #b71c1c !important;
+}
+
+img {
+  max-width: 100% !important;
+  height: auto !important;
+  border-radius: 8px !important;
+  margin: 1.5rem 0 !important;
+}
+
+code {
+  background: #f4f4f4 !important;
+  padding: 0.2rem 0.4rem !important;
+  border-radius: 4px !important;
+  font-size: 0.9rem !important;
+}
+
+pre {
+  background: #f4f4f4 !important;
+  padding: 1rem !important;
+  border-radius: 6px !important;
+  overflow-x: auto !important;
+  font-size: 0.95rem !important;
+}
+
+ul, ol {
+  margin: 1rem 0 !important;
+  padding-left: 1.5rem !important;
+}
+
+li {
+  margin-bottom: 0.5rem !important;
+}
+
+blockquote {
+  border-left: 4px solid #d32f2f !important;
+  padding-left: 1rem !important;
+  margin: 1.5rem 0 !important;
+  font-style: italic !important;
+  color: #555 !important;
+}
