@@ -1,9 +1,9 @@
 {
   "name": "tumblr-dashboard",
   "version": "1.0.0",
-  "main": "proxy.cjs",
+  "main": "server.js",
   "scripts": {
-    "start": "node proxy.cjs"
+    "start": "node server.js"
   },
   "license": "ISC",
   "dependencies": {
