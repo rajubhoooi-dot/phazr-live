@@ -1,0 +1,27 @@
+﻿TITLE: Papa ki sharaab aur meri chudai
+URL:..
+Meri umar 32 saal hai, aur main ek divorcee hu. Sasural walo ke atyachaar ki wajah se meri marriage toot gayi. Meri marriage 26 saal ki umar mein hui thi. 6 maheene ke andar mere sasural walo ne mujhe itna mentally torture kiya, ki main bardasht nahi kar payi, aur maine apne ghar walo ko bata diya.
+Unhone maamla suljhaane ki koshish ki, lekin mere sasural waale samajhne ko taiyaar nahi the. Finally divorce ka fainsla le liya gaya. Divorce ke baad main apne ghar wapas aa gayi.
+Main apne parents ki ik-lauti beti hu. Wapas aane ke ek saal baad meri mummy ki death ho gayi. Main aur papa akele reh gaye, aur hum bahut dukhi the. Fir waqt ke sath sab theek hone laga. Hum dono apne-apne kaam mein busy rehne lage. Lekin pichle saal meri aur papa ki chudai shuru ho gayi. Kaise? Chaliye batati hu.
+Pehle main apne baare mein bata du. Mera rang theek-theek gora hai, figure 34-30-36 hai. Nain-naksh ache hai. Divorce ke baad mummy-papa ne mujhe kayi baar dobara marriage karne ko bola. Ladke bhi mil rahe the achi families ke. Lekin mera vishwas toot gaya tha marriage se.
+Aketi to main reh rahi thi, lekin meri chut ki pyaas din-ba-din badh rahi thi. Main roz raat ko fingering karne lagi. Kuch din to theek tha, lekin uske baad fingering ne kaam karna band kar diya. Maine dildo mangwaya online, lekin wo kisi kaam ka nahi nikla.
+Main lund lena chaahti thi, lekin shaadi nahi karna chaahti thi. Kisi mard ko saamne se approach karti, itni khuli nahi hui thi. Fir ek din kuch aisa hua, jisse zindagi chudai se bhar gayi.
+Mere papa aksar sharaab pee kar ghar aate the. Kabhi-kabhi to thodi si peete the, lekin kabhi-kabhi over drink bhi kar lete the. Us din bhi kuch aisa hi hua. Papa ghar par pee kar aaye. Jaise hi maine darwaza khola, papa girne waale the. Maine unko sambhala, aur unke room tak leke jaane lagi.
+Room tak pahuch kar main unke bed tak leke gayi, aur wahan lita diya. Fir maine papa ke joote utaar diye. Uske baad main un par chaadar dene lagi. Papa ne kurta-pajama pehna hua tha. Jab main un par chaadar odhane lagi, tab meri nazar unke lund par padi. Papa ka lund poora tanna hua tha, aur pajame mein tambu banaya hua tha.
+Maine apne papa ke baare mein kabhi aisa-waisa socha nahi tha. Lekin us din unka khada hua lund dekh kar pati nahi kyun mujhe alag sa mehsoos hone laga. Shayad ye meri chut ki pyaas thi, jo mujhe us lund ki taraf aakarshit kar rahi thi.
+Main ye jaanti thi ki papa nashe mein the, aur is waqt unke sath kuch bhi kiya jaye to unko pata nahi chalega. To maine apna hath unke lund par rakh diya. Unka lund lohe ki rod ke jaisa sakht tha, aur ye dekh kar mere andar khalbali mach gayi. Mera mann lund dekhne, aur usko apne andar lene ka karne laga.
+Tabhi mere dimag mein khayaal aaya ki wo mere papa the, aur unke baare mein aisa sochna bahut galat tha. Lekin fir mere dil ne kaha ki is waqt wo hosh mein nahi the, to is cheez ka faida uthana chahiye. Maine apne dimag ko side mein rakh kar dil ki suni.
+Maine apna hath aage badhaya, aur unke pajame ka naada khol diya. Fir pajama neeche kiya, aur sath mein hi underwear bhi neeche kar diya. Underwear neeche hote hi unka lund uchal kar baahar aa gaya. Meri aankhen chamakne lagi.
+Fir maine unke lund ko apne hath mein liya, aur papa ki taraf dekha. Wo gehri neend so rahe the. Maine muh khola, aur lund ko muh mein leke choosne lagi. Waah, kya swaad tha papa ke lund ka. Mujhe maza aane lag gaya.
+Kuch der lund choosne ke baad jab lund chikna ho gaya, to maine apne kapde utaarne shuru kiye. Main poori nangi ho gayi, sirf bra rehne di. Papa seedhe lete the, aur main unke upar aa gayi. Maine apni chut par unka lund set kiya, aur upar baithne lagi.
+Meri chut bheegi padi thi, to lund aaram se andar jaane laga. Lund mota tha, to mere muh se aahen nikalne lagi. Kuch hi seconds mein papa ka poora lund meri chut mein sama gaya. Unka kadak lund chut mein leke main to seedhe jannat mein pahunch gayi.
+Fir maine dheere-dheere upar neeche hona shuru kiya. Isse lund meri chut ke andar-baahar hone laga, aur mujhe bahut maza aane laga. Main itni madhosh ho gayi ki mere muh se aahen nikalne lagi. Mujhe ye bhi yaad nahi raha, ki main apne papa ke lund par chadhi hui thi, aur wo nashe mein so rahe the.
+Kuch der main aise hi lund par upar-neeche hoti rahi. Fir kuch aisa hua, jo maine socha nahi tha. Papa ne achanak apne hath meri gaand par rakhe, aur neeche se meri chut mein dhakke maarne lage. Unhone aankhen kholi, aur meri aankhon mein dekhne lage. Main bahut ghabra gayi, lekin lund par uchalti rahi. Fir main boli-
+Main: Papa woâ€¦
+Papa ne mujhe tokte hue bola: Main jaanta hu beti jism ki aag bahut tadpati hai. Teri maa ke jaane ke baad main bahut tadpa hu. Maine kayi baar tujhse baat karne ki sochi, lekin keh nahi paaya. Acha hua toone apne aap hi ye kar liya. Ab hum dono ki pyaas bujh jayegi.
+Ye bol kar papa ne mere boobs par hath rakhe, aur dabate hue meri bra nikaal di. Unhone mujhe apni taraf kheencha, aur mere honth choosne lagi. Main bhi unka sath dene lagi. Wo mere boobs daba rahe the, aur unko choos rahe the. Neeche se dhakke lagte jaa rahe the.
+Kuch der mein papa ne mujhe ghodi banaya, aur peeche se chodne lage. Mujhe aisa lag raha tha jaise main swarg mein pahunch gayi thi. Chut ke jhadne se meri taangein kaamp rahi thi. End mein papa ne zor ke dhakke maar kar mere andar hi apna maal nikaal diya. Us roz shuru hua silsila aaj bhi chal raha hai.
+Feedback de
+[emailÂ protected]
+par.\r\n
+

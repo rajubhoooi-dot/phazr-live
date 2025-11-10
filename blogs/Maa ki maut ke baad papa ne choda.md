@@ -1,0 +1,27 @@
+﻿TITLE: Maa ki maut ke baad papa ne choda
+URL:..
+Main Rajsthan ke Jaipur ki rehne wali hu. Abhi main college ke final year mein padhti hu. Main dekhne mein attractive aur gore rang ki hu. Ye baat tab ki hai jab mera college ka first year chal raha tha. Us waqt mera size 32-28-34 tha. Main leggings-kurti pehanti thi zyadatar.
+Mere ghar mein mere alawa sirf mummy-papa the. Main unki ek-lauti santaan thi. Mummy pichle 6 maheeno se beemar thi, to mujhe hi ghar ka saara kaam dekhna padta tha. Papa mere dukan chalate the.
+Fir ek din mujhe college mein message mila ki mere ghar se phone aaya tha, aur meri mummy ki death ho chuki thi. Main jaldi se ghar aayi. Bahut dukhi thi main, aur bahut royi.
+Time beet-ta raha, aur kuch hi maheeno mein halaat theek ho gaye. Main aur papa apni regular life mein busy ho gaye. Mummy ke rehte papa mujhse zyada baat nahi karte the, lekin ab karne lage the. Lekin fir aisi cheezein hone lagi, jo maine sochi nahi thi.
+Ek din main bathroom mein naha rahi thi. Hamare bathroom ka darwaza theek se band nahi hota tha, aur ye kaafi waqt se aisa tha. Ghar mein sab ko iske baare mein pata tha, to har koi usko kholne se pehle pooch leta tha, ki kahin koi andar na ho.
+Lekin us din jab achanak mera dhyan darwaze ki taraf pada, to maine dekha baahar koi khada tha. Mujhe neeche pairon ki parchayi dikh rahi thi. Ye dekh kar main ghabra gayi. Ab ghar mein to mere alawa papa hi the, to kya mere papa mujhe dekh rahe the. Ye soch kar mujhe ajeeb sa feel hone laga.
+Fir main chhupi nazron se baar-baar us parchayi ko dekhne lagi. Tabhi wahan zameen par kuch liquid aake gira. Main porn dekh chuki thi, to mujhe pata tha ki wo liquid kya tha. Tabhi wo parchayi wahan se hatt gayi.
+Main is baat ko hazam karne ki koshish hi kar rahi thi, ki agli ghatna hui. Usi din raat ko jab main apne room mein thi, to papa dheere se mere kamre mein aaye. Main jaag rahi thi, lekin aankhen band thi to papa ko laga main so chuki thi.
+Papa mere nazdeek aaye, aur mere badan par hath ferne lage. Unhone mere boobs dabaye, fir jaanghen sehlayi, aur fir chut par hath ferne lage. Ye sab karke wo kamre se nikal gaye. Unke jaane ke baad maine dekha meri chut geeli hui padi thi. Badi ajeeb si feeling thi. Mujhe ye sochne mein bhi sharam aa rahi thi ki mere papa mere sath sex karna chaahte the.
+Fir ye cheezein aksar hone lagi. Aksar papa mujhe din mein kahin na kahin bahane se chhoone lage. Raat ko wo mere kamre mein aate, aur mujhe soyi hui dekh kar mere jism ko chhoote. Ab to baat hontho par halki kiss, aur chut soonghne tak pahunch chuki thi.
+Ab mujhe bhi is sab ki aadat ho chuki thi, aur meri chut geeli rehne lagi thi unke aise karne se. Papa isse aage nahi badh rahe the, to maine socha ki itne se kuch nahi hota. Lekin wo aage badhe, aur itna badh gaye, ki main unki randi ban gayi.
+Sunday ka din tha, aur bahut barish ho rahi thi. Meri college ki chutti thi, aur papa bhi barish ke chalte ghar par hi the. Dopahar ho chuki thi, aur main kitchen mein khaana bana rahi thi. Maine laal rang ki leggings aur yellow colour ka kameez pehna tha. Dupatta nahi liya hua tha maine.
+Main roti bel rahi thi, ki tabhi papa peeche se aaye, aur upar wali slab se kuch uthane ke bahane mere peeche chipak gaye. Mujhe apni gaand par unka khada lund mehsoos hone laga, lekin maine koi reaction nahi diya. Mujhe laga ki wo thoda ragad kar peeche ho jayenge. Lekin aisa nahi hua.
+Papa apna lund ragadne lage, aur main roti belti rahi. Meri saansein thodi tez hone lagi thi. Fir jaise hi maine roti utha kar tave par rakhi, papa ne apne hath aage kiye, aur mere dono boobs par rakh diye. Unki is harkat se main hairan ho gayi.
+Papa ab meri gaand par lund ragadte hue mere boobs dabane lage, aur meri gardan par kiss karne lage. Main samajh nahi paa rahi thi ki main kya karu. Main jaldi se roti palatne lagi, lekin wo mere hath se gir gayi.
+Jab main roti uthane neeche jhuki, to papa ne mujhe waise hi rok liya. Fir papa ne peeche se meri leggings neeche ki, aur sath hi panty bhi neeche kar di. Main samajh chuki thi ki aaj meri chudai hone wali thi. Meri chut mein itni khalbali mach chuki thi ki main unko kuch bol hi nahi saki.
+Fir papa ne meri chut ko hath lagaya. Shayad wo check kar rahe the ki chut geeli thi ya nahi. Chut par hath ferne ke baad papa ne apna lund meri chut par rakha, aur dabaav banane lage. Mujhe dard hone laga, aur papa ka lund chut ke andar jaane laga.
+Main ahh papa ohh papa karne lagi, lekin papa ne zor laga kar lund chut mein ghusa diya. Meri dard se cheekh nikal gayi. Main aage bhi nahi ho sakti thi, kyunki aage jagah nahi thi. Papa lund daal kar wahin ruke rahe. Meri aankhon se aansu neeche zameen par gir rahe the.
+Kuch der ke dard ke baad meri chut paani chhodhne lagi. Ab dard kam ho gaya, aur madhoshi chaane lagi. Meri gaand apne aap hilne lagi. Ye dekh kar papa ne dheere-dheere lund andar-baahar karna shuru kiya. Mujhe ab maza aane laga, aur meri dard bhari aahen kamuk siskiyon mein badalne lagi.
+Fir papa ne dhakke tez kar diye. Ab thap-thap ki awaaz aane lagi. Papa ki speed bahut tez ho gayi, aur mujhe maza bhi bahut aane laga. 15 minute baad mujhe apni chut mein garam-garam mehsoos hua. Main samajh gayi ye unka virya tha. Fir papa wahan se bina kuch bole chale gaye.
+Usi raat ko papa mere kamre mein aaye, aur mujhe raat bhar chodte rahe. Main bhi maze le-le kar chudi. Hamare beech baat nahi hoti thi is dauran, lekin chudai roz hone lagi. Main samajh gayi thi ki ab main apne papa ki raand thi, aur main khush bhi hu.
+Feedback
+[emailÂ protected]
+par de.\r\n
+
