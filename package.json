@@ -3,7 +3,8 @@
   "version": "1.0.0",
   "main": "server.js",
   "scripts": {
-    "start": "concurrently \"node proxy.cjs\" \"node server.js\"" },
+    "start": "concurrently \"node proxy.cjs\" \"node server.js\" \"python3 update-index.py\""
+},
   "license": "ISC",
   "dependencies": {
     "cors": "^2.8.5",
