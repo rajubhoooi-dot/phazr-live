@@ -2,7 +2,7 @@
 
 // ==== CONFIG ====
 const LIMIT = 20;
-const HOME_BLOG = 'all';
+const HOME_BLOG = 'art';
 let currentBlog = HOME_BLOG;
 let currentTag = '';
 let offset = 0;
