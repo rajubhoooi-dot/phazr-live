@@ -2,7 +2,7 @@
 
 // ==== CONFIG ====
 const LIMIT = 20;
-const HOME_BLOG = 'art';
+const HOME_BLOG = 'dangerous-curves-ahead';
 let currentBlog = HOME_BLOG;
 let currentTag = '';
 let offset = 0;
